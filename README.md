@@ -13,7 +13,7 @@ I elude the mediocre, so I heeded.
 
 My boy is growing up to be a kind, happy, and smart human being. Mission accomplished.
 
-While doing number 8, I also wanted to realize other plans. "I want to go to graduate school."
+While on mommy duties, I also wanted to realize other plans. "I want to go to graduate school."
 
 So I did what a student adviser said was a crazy and bad idea nobody has done in the history of the UVA Graduate School of Communications.
 I was nursing a baby, changing nappies, reading dozens of scientific articles a week, studying for exams, conducting social experiments.
