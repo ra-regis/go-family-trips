@@ -1,5 +1,4 @@
 ## Headline
 
-I am great.
+This is my training hub.
 
-I like me.
